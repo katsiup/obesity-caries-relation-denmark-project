@@ -42,4 +42,4 @@ in rural municipalities could simultaneously address both public health challeng
 - COVID-19 pandemic acted as a confounding variable (2020-2022)
 
 ### Author
-Dentist and aspiring Medical Affairs professional
+Doctor of Dental Medicine
